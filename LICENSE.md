@@ -1,4 +1,4 @@
-
+jump to steal lucky blocks underground Script is the best jump to steal lucky blocks Script, featuring auto-sell and custom skins. Safe and powerful
 
 
 
